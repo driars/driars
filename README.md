@@ -52,6 +52,9 @@ Development methodologies
 Contact
 ```
 toptalent0301@gmail.com
+Phone: +1 432 897 2226
+WhatsApp: +1 432 897 2226
+Skype: live:.cid.c40d83efb3d25ba2
 ```
 
 ## Github Stats
